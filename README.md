@@ -29,7 +29,7 @@
 <br>
 <br>
 
-[![relssss.png](https://i.postimg.cc/z3ZqVcM0/relssss.png)](https://postimg.cc/30Bsqn3v)
+[![app.png](https://i.postimg.cc/N0pRhWPh/app.png)](https://postimg.cc/hJQXT3BM)
 
 <br>
 <br>
